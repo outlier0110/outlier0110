@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @outlier0110
+- 👀 I’m interested in a better world
+- 🌱 I’m currently learning how to control my rage
+- 💞️ I’m looking to collaberate on nothing.
+- 📫 How to reach me, i call u.
